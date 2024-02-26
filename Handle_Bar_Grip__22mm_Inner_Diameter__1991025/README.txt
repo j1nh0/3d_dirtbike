@@ -1,0 +1,1 @@
+Handle Bar Grip (22mm Inner Diameter) by Neozeeka on Thingiverse: https://www.thingiverse.com/thing:1991025
